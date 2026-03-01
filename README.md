@@ -1,7 +1,3 @@
-
-
-https://github.com/user-attachments/assets/fe23b464-3eb1-4de1-a64d-a0833bd76beb
-
 Hi 👋 My name is Murali J
 ===============================
 
